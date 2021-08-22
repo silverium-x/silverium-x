@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @silverium-x
-- 👀 I’m interested in to sell some art objekts
+- 👀 I’m interested in to sell some art objkts
 - 🌱 I’m currently learning to use this
 - 💞️ I’m looking to collaborate on a better world
 - 📫 How to reach me: silveriodonatti@gmail.com
